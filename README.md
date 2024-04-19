@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @iamfadi99
+- 👀 I’m interested in YOU 
+- 🌱 I’m currently learning About You
+- 💞️ I’m looking to collaborate with You
+- 📫 You don't need to reach me, I'll
+- 😄 Pronouns: Yours
+- ⚡ Fun fact: I Like You  
